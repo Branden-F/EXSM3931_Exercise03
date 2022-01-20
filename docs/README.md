@@ -1,0 +1,1 @@
+My name is Branden, I have a decent amount of computer experience. Grew up with a Network Admin as a Dad who brought me to class with him a lot due to lack of consistent childcare. Due to this I grew to enjoy learning about computers. Other than that I spend the rest of my time with my daughter. We love to be outside and be in nature.
